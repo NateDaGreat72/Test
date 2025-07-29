@@ -7,3 +7,4 @@
 # Find your Savior before it's too late
 # Jesus loves you no matter what
 # With Jesus, anything is possible
+# Praise be to His worthy name
