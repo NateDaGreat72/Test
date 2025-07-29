@@ -5,3 +5,4 @@
 # Jesus loves me this I know, for the Bible tells me so
 # Time is running short... 
 # Find your Savior before it's too late
+# All can live eternally with their God in Heaven
