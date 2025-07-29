@@ -6,4 +6,4 @@
 # Time is running short... 
 # Find your Savior before it's too late
 # Jesus loves you no matter what
-# Love, Joy, Peace, Patience, Kindness, Goodness, Faithfulness, Gentleness, and Self-Control
+# With Jesus, anything is possible
