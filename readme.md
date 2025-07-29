@@ -5,7 +5,3 @@
 # Seven times I may stumble, but He will pick me up again
 # Jesus loves me this I know, for the Bible tells me so
 
-
-
-# New branch
-
