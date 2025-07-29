@@ -8,3 +8,4 @@
 # Jesus loves you no matter what
 # With Jesus, anything is possible
 # Praise be to His worthy name
+# All Glory goes to God Almighty
